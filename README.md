@@ -1,2 +1,2 @@
 <details>
-  <summary>Read more</something something>
+  <summary>f/os/summary>
