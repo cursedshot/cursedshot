@@ -1,3 +1,2 @@
-<details>
+<details/i play and draw>
   <summary>f/os
--i play and draw
