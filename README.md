@@ -1,2 +1,2 @@
 <details>
-  <summary>f/os/summary>
+  <summary>f/os/>
