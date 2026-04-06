@@ -1,6 +1,4 @@
-<p align="center">i use this account for coding tests ok?</p>
-
-<center>
+<p align="center">i use this account for coding tests ok?
 <details><summary>Selfship Info (CRINGE)</summary>
   i'm selective sharing but DON'T FREAK OUT i still love talking to doubles, it just may take awhile for me to befriend you!
   
@@ -8,4 +6,3 @@
   
   I also <b>FAMILIAL YUME</b> Gourdy (DW), CC (FNAF4), and the Locust (Doctor Nowhere) (< yes i'm actually serious about this one 😭), i consider then as my kids yes yes
 </details></p>
-</center>
