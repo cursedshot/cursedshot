@@ -9,3 +9,8 @@
 </details></p>
 
 <p align="center">la la la</p>
+
+<details>
+  <summary class="centered-summary">Click to Expand</summary>
+  <p>Detailed information goes here.</p>
+</details>
