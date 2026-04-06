@@ -1,2 +1,2 @@
 <details>
-  <summary>Read more</summary>
+  <summary>Read more</something something>
