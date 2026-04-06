@@ -1,6 +1,6 @@
 <p align="center">i use this account for coding tests ok?</p>
 
-<details><summary class="centered-summary">Click to Expand<summary>Selfship Info (CRINGE)</summary>
+<details><summary class="centered-summary">Selfship Info (CRINGE)</summary>
   i'm selective sharing but DON'T FREAK OUT i still love talking to doubles, it just may take awhile for me to befriend you!
   
   my <b>romantic f/os</b> are Skateboard (PH!), Mequot (DOD), Melanie (REGRETEVATOR), Builderfan (SEWH), and Leopa+Xigeris (FS/DG)
