@@ -1,6 +1,6 @@
 <p align="center">i use this account for coding tests ok?</p>
 
-<p align="center">HIi !! read any attached links 4 more info!!<details>
+<p align="center"><details>
   <summary>Selfship Info (CRINGE)</summary>
   i'm selective sharing but DON'T FREAK OUT i still love talking to doubles, it just may take awhile for me to befriend you!
   
