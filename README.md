@@ -4,5 +4,5 @@
   
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ my <b>romantic f/os</b> are Skateboard (PH!), Mequot (DOD), Melanie (REGRETEVATOR), Builderfan (SEWH), and Leopa+Xigeris (FS/DG)
   
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ I also <b>FAMILIAL YUME</b> Gourdy (DW), CC (FNAF4), and the Locust (Doctor Nowhere) (< yes i'm actually serious about this one 😭), i consider then as my kids yes yes
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ I also <b>FAMILIAL YUME</b> Gourdy (DW), CC (FNAF4), and the Locust (Doctor Nowhere) (< yes i'm actually serious about this one 😭), i consider them my kids yes yes
 </details></p>
